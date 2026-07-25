@@ -2,7 +2,7 @@
 
 hi im tabi and i like will wahony okay thanks!
 
-and my bestfriend is the coy to my will but where is anthony and hanbon
+and my bestfriend @killbones is the coy to my will but where is anthony and hanbon
 
 auditions for hanbon and anthony will be held july 31st 2019
 
