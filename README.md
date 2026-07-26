@@ -4,4 +4,6 @@ hi im tabi and i like will wahony okay thanks!
 
 and my bestfriend @killbones is the coy to my will but where is anthony and hanbon
 
-![](https://i.pinimg.com/736x/f5/f4/90/f5f490ba8a129d37d49abadf47fe08dc.jpg)
+![](https://i.pinimg.com/736x/a3/6d/f3/a36df3eebfa1f6c2625773f49fe555c3.jpg)
+
+were pretty neat i think
