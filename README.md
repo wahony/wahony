@@ -1,6 +1,6 @@
 [all art by _goblinshark](https://www.tiktok.com/@_goblinshark/video/7667197507935423765?is_from_webapp=1&sender_device=pc)
 
-did they delete our money cus we done have anymore?
+did they delete our money account cus we done have anymore?
 
 <img align="center" width="135" alt="hellooo" src="https://komarev.com/ghpvc/?username=ecthoz&color=b19cd9&label=friends">
 
