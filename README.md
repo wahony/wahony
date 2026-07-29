@@ -1,3 +1,4 @@
+did they delete our money cus we done have anymore?
 <img align="center" width="135" alt="hellooo" src="https://komarev.com/ghpvc/?username=ecthoz&color=b19cd9&label=friends">
 
 <img align="center" width="80%" src="https://files.catbox.moe/ywupau.png" />
